@@ -2,9 +2,14 @@
 
 <h1>Comece a investir em sua carreira hoje. de programação 👇🚀
 </h1>
-![image](https://github.com/user-attachments/assets/61319a81-4d53-469e-9684-f1eeaec29c92)
-![image](https://github.com/user-attachments/assets/d567becf-c978-45eb-9d85-d79ea3507a24)
-![image](https://github.com/user-attachments/assets/6e7be7a4-0a91-4c39-9ef3-52c4ee2561f3)
+![photo_2025-03-29_12-45-20](https://github.com/user-attachments/assets/d2647fb0-7d31-4bfa-a809-e6905de59ff9)
+![photo_2025-03-29_12-45-11](https://github.com/user-attachments/assets/3244c53d-3807-4573-b093-08d794e049b9)
+
+
+
+
+
+
 
 
 
